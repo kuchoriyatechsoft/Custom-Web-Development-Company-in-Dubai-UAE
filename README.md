@@ -1,6 +1,5 @@
 # 🌐 Custom Web Development Services in Dubai, UAE for Fast-Growing Companies
-
-![web Development](https://kuchoriya-software.s3.ap-south-1.amazonaws.com/Image/1778239668616_56ea7b24-2417-487c-829f-7d5abd96ae2d.png)
+![Development](https://kuchoriya-software.s3.ap-south-1.amazonaws.com/Image/1778239668616_56ea7b24-2417-487c-829f-7d5abd96ae2d.png)
 
 ## Introduction
 
